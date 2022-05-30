@@ -20,6 +20,9 @@ basically just introducing all my friends
 ## Jill
 "a mabel pines kinnie who stans keqing. obsesses over something for two days then moves onto something else" -Freya
 
+## Lilly
+"your local transfem computer science nerd. way too obsessed with hugs." -Lilly
+
 ## Mia
 "i have attachment issues, nancy wheeler and steve harrington my beloved and an incredibly swag person overall" -Mia
 
